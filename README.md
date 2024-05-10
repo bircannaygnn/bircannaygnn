@@ -1,4 +1,4 @@
- [![MasterHead](https://www.basamak.com.tr/wp-content/uploads/2021/06/yazilim-nedir-1.jpg)
+ [![MasterHead]([https://www.basamak.com.tr/wp-content/uploads/2021/06/yazilim-nedir-1.jpg](https://img.tamindir.com/resize/1200x675/2023/01/476730/yazilim-gelistirici.jpg)
 
 
 
